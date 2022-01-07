@@ -1,1 +1,1 @@
-# STARS1
+# STARS G Coin
